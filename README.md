@@ -23,10 +23,18 @@ cannot tension chain anymore
 
 changed 15T frontsprocket for old 16T
 
+- this bike has 13tooth driveshaft spline
+
+- other has 6 tooth driveshaft spline
+
 can tension chain again :-)
 
 Have a new set, but Scrooge.
 
 rpm is lower now, so less fuel consumption
 
+
+---
+
+https://github.com/ldijkman/Honda-Shadow-VT600C-Honda-Shadow-VLX/discussions
 
