@@ -23,8 +23,10 @@ cannot tension chain anymore
 
 changed 15T frontsprocket for old 16T
 
-can tension again :-)
+can tension chain again :-)
 
-rpm is lower so less fuel consumption
+Have a new set, but Scrooge.
+
+rpm is lower now, so less fuel consumption
 
 
