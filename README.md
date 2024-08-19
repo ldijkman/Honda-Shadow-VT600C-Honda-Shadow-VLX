@@ -58,7 +58,8 @@ i like the cheap
 
 Maxxis M-6011 Classic 170/80-15 77H
 
-https://www.google.com/search?q=Maxxis+M-6011+Classic+170%2F80-15+77H&oq=Maxxis+M-6011+Classic%C2%A0170%2F80-15+77H%0A%0A
+https://www.google.com/search?q=Maxxis+M-6011+Classic+170%2F80-15+77H&oq=Maxxis+M-6011+Classic%C2%A0170%2F80-15+77H
+
 ---
 
 https://github.com/ldijkman/Honda-Shadow-VT600C-Honda-Shadow-VLX/discussions
