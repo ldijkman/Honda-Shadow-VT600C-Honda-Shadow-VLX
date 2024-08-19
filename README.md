@@ -48,8 +48,13 @@ Have a new set, but Scrooge.
 
 rpm is lower now, so less fuel consumption
 
+---
+
+## too early see  no canvas
+ 
+<img src="https://raw.githubusercontent.com/ldijkman/Honda-Shadow-VT600C-Honda-Shadow-VLX/main/20240819_195746.jpg">
 
 ---
 
 https://github.com/ldijkman/Honda-Shadow-VT600C-Honda-Shadow-VLX/discussions
-
+ 
