@@ -11,4 +11,6 @@ made some miles
 
 bought some backup for the rest of this life
 
+
+strange 1 engine has no oil lines from right sidecover to heads
 <img src="https://raw.githubusercontent.com/ldijkman/Honda-Shadow-VT600C-Honda-Shadow-VLX/main/20240817_192031.jpg">
