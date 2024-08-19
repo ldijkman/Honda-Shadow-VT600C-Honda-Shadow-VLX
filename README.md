@@ -64,5 +64,16 @@ https://www.google.com/search?q=Maxxis+M-6011+Classic+170%2F80-15+77H&oq=Maxxis+
 
 ---
 
+# Front Fender SUX 
+
+corrosion 
+
+have not seen a nice remake
+
+would like to have bottom longer
+to protect radiator wear
+
+---
+
 https://github.com/ldijkman/Honda-Shadow-VT600C-Honda-Shadow-VLX/discussions
  
