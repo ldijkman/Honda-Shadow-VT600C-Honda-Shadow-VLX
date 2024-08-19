@@ -3,7 +3,16 @@ Honda Shadow VT600C, Honda Shadow VLX
 
 drive the thing since 1991
 
-nothing yet
+this one 1988 50.000 miles now
+only tires chain accu and oil/filter
+ spatk plug 
+ did almost no maintenence
+
+started painting it mat black with cheap ACTION.COM paint, thats easy a scratch is easy fixed
+
+
+
+<img src="https://raw.githubusercontent.com/ldijkman/Honda-Shadow-VT600C-Honda-Shadow-VLX/main/20240819_194219.jpg">
 
 made some miles
 
