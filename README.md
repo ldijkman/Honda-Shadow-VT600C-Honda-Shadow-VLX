@@ -64,9 +64,9 @@ https://www.google.com/search?q=Maxxis+M-6011+Classic+170%2F80-15+77H&oq=Maxxis+
 
 ---
 
-# Front Fender SUX 
+# HONDA your Front Fender SUX 
 
-corrosion 
+corrosion swelling at mount laminated unpainted metal
 
 have not seen a nice remake
 
