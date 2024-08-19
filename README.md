@@ -3,10 +3,16 @@ Honda Shadow VT600C, Honda Shadow VLX
 
 drive the thing since 1991
 
-this one 1988 50.000 miles now
+this one 1988 50.000 miles now 
+
+drive it in any weather
+
 only tires chain accu and oil/filter
- spatk plug 
+ spark plug 
+ 
  did almost no maintenence
+
+people complained about my slick rear tire in snowy weather
 
 started painting it mat black with cheap ACTION.COM paint, thats easy a scratch is easy fixed
 
