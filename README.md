@@ -73,6 +73,8 @@ have not seen a nice remake
 would like to have bottom longer
 to protect radiator wear
 
+aftermarket ABS plastic ones are even shorter?
+
 ---
 
 https://github.com/ldijkman/Honda-Shadow-VT600C-Honda-Shadow-VLX/discussions
