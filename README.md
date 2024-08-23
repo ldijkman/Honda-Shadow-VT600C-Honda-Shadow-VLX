@@ -92,6 +92,21 @@ not pre filled, so can use it when needed
 <img src="https://raw.githubusercontent.com/ldijkman/Honda-Shadow-VT600C-Honda-Shadow-VLX/main/20240823_113822.jpg">
 
 
+chatgpt
+
+Quality and Reliability:
+
+NTX-9BS: Quality can vary depending on the manufacturer. These batteries might be more affordable, but they may not have the same longevity or reliability as a Yuasa battery.
+YTX-9BS: Generally known for higher quality and better reliability. Yuasa batteries are widely recognized for their performance and durability.
+Price:
+
+NTX-9BS: Usually less expensive, which makes it an attractive option for those looking to save money.
+YTX-9BS: Typically more expensive due to the brand's reputation and quality assurance.
+Application:
+
+Both batteries are intended for the same use, so they should be interchangeable if the specifications are identical.
+In summary, the YTX-9BS is likely the better choice if you prioritize reliability and performance, while the NTX-9BS might be a more cost-effective option if you are on a budget.
+
 ---
 
 https://github.com/ldijkman/Honda-Shadow-VT600C-Honda-Shadow-VLX/discussions
