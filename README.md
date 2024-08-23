@@ -81,6 +81,8 @@ try another cheaper battery
 
 hmmmm,   NTX-9BS  versus   YTX-9BS
 
+https://rogertrading.nl/product/accu-ytx9-bs-12v-8ah-incl-zuurpakket/?lang=nl
+
 <img src="https://raw.githubusercontent.com/ldijkman/Honda-Shadow-VT600C-Honda-Shadow-VLX/main/20240823_113822.jpg">
 
 
