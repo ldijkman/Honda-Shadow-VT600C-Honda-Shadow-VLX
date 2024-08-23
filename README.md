@@ -95,4 +95,13 @@ not pre filled, so can use it when needed
 ---
 
 https://github.com/ldijkman/Honda-Shadow-VT600C-Honda-Shadow-VLX/discussions
+
+
+
+
+---
+
+# Honda XR600
+
+https://github.com/ldijkman/Honda-XR600R/tree/main
  
