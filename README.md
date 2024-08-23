@@ -81,6 +81,10 @@ try another cheaper battery
 
 hmmmm,   NTX-9BS  versus   YTX-9BS
 
+YUASA Accu YTX9-BS 12v-8Ah
+
+NITRO Accu YTX9-BS 12v-8Ah NTX9-BS
+
 https://rogertrading.nl/product/accu-ytx9-bs-12v-8ah-incl-zuurpakket/?lang=nl
 
 not pre filled, so can use it when needed
