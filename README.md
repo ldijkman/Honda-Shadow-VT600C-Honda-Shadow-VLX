@@ -77,5 +77,14 @@ aftermarket ABS plastic ones are even shorter?
 
 ---
 
+try another cheaper battery
+
+hmmmm ntx   ytx
+
+<img src="https://raw.githubusercontent.com/ldijkman/Honda-Shadow-VT600C-Honda-Shadow-VLX/main/20240823_113822.jpg">
+
+
+---
+
 https://github.com/ldijkman/Honda-Shadow-VT600C-Honda-Shadow-VLX/discussions
  
